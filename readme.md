@@ -9,3 +9,5 @@ Use this for when you poop.
 3: Zak 9/3/14 Morning follow up itcy
 
 4: Roger 9/4/14 Evening quick and surgical like a navy seal operation
+
+5: Greg 9/4/14 Early, early morning soft, too soft
